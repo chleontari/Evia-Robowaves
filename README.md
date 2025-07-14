@@ -54,3 +54,4 @@ Robowaves – Μαθητές/τριες Έκτης τάξης
 
 Μαζί, φτιάχνουμε δημόσιους χώρους με σεβασμό στον άνθρωπο και το περιβάλλον!
 
+Δείτε την αναλυτική παρουσίαση του έργου https://www.canva.com/design/DAGlkwKcUlk/k3vBk71i7Y6JQN__OQu-Cg/view?utm_content=DAGlkwKcUlk&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hb35af4b636 
